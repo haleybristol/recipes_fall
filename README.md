@@ -1,4 +1,4 @@
 # recipes_fall
 
 Corgis are cool.
-Hedgehogs are stupid.
+Hedgehogs are cool.
