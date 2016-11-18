@@ -1,3 +1,9 @@
+Pineapple UpsideDown cake
+=========================
+
+Ingredients
+-----------
+
 1/4
 cup butter or margarine 
 2/3
@@ -20,6 +26,9 @@ teaspoon salt
 cup milk 
 1
 egg
+
+Instructions
+------------
 
 1 Heat oven to 350°F. In 9-inch square pan, melt butter in oven. Sprinkle brown sugar evenly over melted butter. Arrange pineapple slices over brown sugar. Place cherry in center of each pineapple slice.
 2 In medium bowl, beat remaining ingredients with electric mixer on low speed 30 seconds, scraping bowl constantly. Beat on high speed 3 minutes, scraping bowl occasionally. Pour batter over pineapple and cherries.
