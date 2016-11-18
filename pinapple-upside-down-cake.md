@@ -1,3 +1,9 @@
+Pineapple UpsideDown cake
+=========================
+
+Ingredients
+-----------
+
 1/4
 cup butter or margarine 
 2/3
@@ -34,3 +40,4 @@ egg
 # 4 Serve warm. Store cake loosely covered.
 
 ***
+
